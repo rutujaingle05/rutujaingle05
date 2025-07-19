@@ -20,4 +20,5 @@
 I don’t just analyze data—I tell its story. Whether it’s customer trends or call center behavior, every chart has a plot twist.
 
 📬 Let's Connect:
-[LinkedIn](https://www.linkedin.com/in/rutuja-ingle-b42bb11a0?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app • [Portfolio](#) • [Email](mailto: rutujaingle005@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/rutuja-ingle-b42bb11a0?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app • )[Portfolio]https://www.novypro.com/profile_projects/rutuja-ingle
+) • [Email](mailto: rutujaingle005@gmail.com)
